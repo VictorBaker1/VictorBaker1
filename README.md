@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @VictorBaker1
+- 👋 Hi, I'm Victor. Behind the design of many.
 
 Another 365, no miss takes. Let's see how much production happens.
 
